@@ -1,4 +1,4 @@
-
+new Scripts for anime vanguards is the best anime vanguards Script, featuring one-hit kill and silent aim. Safe and powerful for all your needs.
 
 
 
